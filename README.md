@@ -1,4 +1,4 @@
 #woshiku
 woshinideku
-i am NOT A  servant
+i am A HUMAN
 O
